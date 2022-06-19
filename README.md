@@ -6,7 +6,7 @@
  <p><strong>Welcome to my Github</strong></p>
   <p><strong>Im a pro paster and retard at the same time!</strong></p>
   <p><strong>How is it even possible to be so larp you ask? no idea but somehow i manage</strong></p>
-  <p><strong>Alt Accounts: Roxicet, Roxicodone, Lorcet (drug username collection fire frfr)</strong></p>
+  <p><strong>Alt Accounts: Roxicet, Roxicodone, Lorcet (drug username collection shit frfr)</strong></p>
 
 <p align="center">
 	<tr>
