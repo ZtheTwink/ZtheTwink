@@ -4,7 +4,6 @@
     <img src="https://discord.c99.nl/widget/theme-4/424914985466986498.png" />
      </a>
   <p><strong>Im a pro paster</strong></p>
-  <p><strong>Alt Accounts: Roxicet, Roxicodone, Lorcet (drug username collection shit frfr)</strong></p>
 
 <p align="center">
 	<tr>
